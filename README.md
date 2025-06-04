@@ -1,0 +1,6 @@
+- Wazzaa im CPyus, beginner minecraft mod developer as well as very smaller twitch streamer/youtuber
+- Imma post progress to my mods here for anyone to use
+- Please credit me if you use any of me stuff
+- yippee
+- @CPyus on Twitch, Youtube, and here
+- Minecraft IGN: Pyus
